@@ -159,7 +159,7 @@ Jennifer Huang - [Github](https://github.com/jhuang10123) / [Twitter](https://tw
 Jhoan Zamora - [Github](https://github.com/jzamora5) / [Twitter](https://twitter.com/JhoanZamora10)  
 David Ovalle - [Github](https://github.com/Nukemenonai) / [Twitter](https://twitter.com/disartDave)
 japheth baraka - [Github](https://github.com/japheth-alt163)
-EMMY chelel - [Github](https://github.com/EMMY chele)
+EMMY Chebet - [Github](https://github.com/Chelel)
 
  
 Second part of Airbnb: Joann Vuong
